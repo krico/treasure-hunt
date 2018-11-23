@@ -8,7 +8,7 @@ To cool down the house a machine is used
 
 You covered it with a green cover not so long ago
 
-And that where your clue will be, go go go!
+And that's where your clue will be, go go go!
 
 
 
