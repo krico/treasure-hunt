@@ -45,7 +45,7 @@
 | 39 | Bugs, pl. n.: |
 | 40 | Alcoholics Anonymous is when you get to drink under someone else's name. |
 | 41 | APL is a write-only language.  I can write programs in APL, but I can't |
-| 42 | Forsan et haec olim meminisse juvabit. |
+| 42 | In the attic! |
 | 43 | Hollerith, v.: |
 | 44 | QOTD: |
 | 45 | The Great Movie Posters: |
